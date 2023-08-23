@@ -3,7 +3,7 @@
 
 
 # 💫 About Me:
-🙋‍♀️ Hi! Currently, I am focused on creating my projects portfolios to enhance my skills in applying knowledge to real-world situations. Additionally, I am working on a case study for a web application that I am eager to develop from scratch. I plan to document my progress on my upcoming blog, which I am also in the process of creating.<br><br>🤩 I'm passionate about both learning and creating. These pursuits motivate and define me. While I have a strong background in graphic design, I'm currently learning web design as well.<br><br>🍕 Fun fact: I'm a fan of pineapple pizza!
+🙋‍♀️ Hi! Currently, I am focused on creating projects for my portfolio, to enhance my skills in applying knowledge to real-world situations. Additionally, I am working on a case study for a web application that I am eager to develop from scratch. I plan to document my progress on my upcoming blog, which I am also in the process of creating.<br><br>🤩 I'm passionate about both learning and creating. These pursuits motivate and define me. While I have a strong background in Graphic Design, I'm currently learning Web Design as well.<br><br>🍕 Fun fact: I'm a fan of pineapple pizza!
 
 
 ## 🌐 Socials:
