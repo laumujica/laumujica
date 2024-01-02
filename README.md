@@ -7,7 +7,7 @@
 I'm Laura, a Digital Designer with an extensive background in the design field. 
 
 ✨
-I have a strong passion for working on a wide range of creative endeavors, including graphic design, digital design, web design, UX/UI design, and user-centered design. What truly motivates me is the opportunity to create innovative digital concepts and products. I'm not drawn to the conventional approach of creating or using templates. Instead, I feel more confident on taking the chance on challenging projects that break away from the norms, pushing boundaries and redefining the standard. I'm excited to contribute my expertise to projects that dare to be different and offer a fresh perspective.
+I have a strong passion for working on a wide range of creative endeavors, including Graphic Design, Digital Design, Web Design, UX/UI design, and user-centered design. What truly motivates me is the opportunity to create innovative digital concepts and products. I'm not drawn to the conventional approach of creating or using templates. Instead, I feel more confident on taking the chance on challenging projects that break away from the norms, pushing boundaries and redefining the standard. I'm excited to contribute my expertise to projects that dare to be different and offer a fresh perspective.
 
 🚀
 I also offer consultancy services to enhance web proposals and all aspects of visual and digital design.
