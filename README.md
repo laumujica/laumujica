@@ -3,7 +3,24 @@
 
 
 # 💫 About Me:
-🙋‍♀️ Hi! Currently, I am focused on creating projects for my portfolio, to enhance my skills in applying knowledge to real-world situations. Additionally, I am working on a case study for a web application that I am eager to develop from scratch. I plan to document my progress on my upcoming blog, which I am also in the process of creating.<br><br>🤩 I'm passionate about both learning and creating. These pursuits motivate and define me. While I have a strong background in Graphic Design, I'm currently learning Web Design as well.<br><br>🍕 Fun fact: I'm a fan of pineapple pizza!
+🙋🏻‍♀️
+I'm Laura, a Digital Designer with an extensive background in the design field. 
+
+✨
+I have a strong passion for working on a wide range of creative endeavors, including graphic design, digital design, web design, UX/UI design, and user-centered design. What truly motivates me is the opportunity to create innovative digital concepts and products. I'm not drawn to the conventional approach of creating or using templates. Instead, I feel more confident on taking the chance on challenging projects that break away from the norms, pushing boundaries and redefining the standard. I'm excited to contribute my expertise to projects that dare to be different and offer a fresh perspective.
+
+🚀
+I also offer consultancy services to enhance web proposals and all aspects of visual and digital design.
+
+🎠
+If you wanna break or create something together, let's do it! 🎈✨
+
+😎
+Be bold!
+
+Feel free to connect: hola@laumujica.com.ar. 
+Have a nice day! 
+Laura ⚡
 
 
 ## 🌐 Socials:
