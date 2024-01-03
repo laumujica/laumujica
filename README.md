@@ -1,5 +1,4 @@
-![github](https://github.com/lauraamujica/laumujica.com.ar/blob/17100f7349655cdf84ed37a51f068990a7a10603/img/portada-readme_Artboard%201.png)
-
+![github](https://github.com/laumujica/laumujica.com.ar/blob/master/img/portada-github.png)
 
 
 # 💫 About Me:
