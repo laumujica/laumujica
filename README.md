@@ -1,4 +1,4 @@
-![github](https://github.com/laumujica/laumujica.com.ar/blob/master/img/portada-github.png)
+![github](https://github.com/laumujica/laumujica.com.ar/blob/master/img/portada-github.jpg)
 
 
 # 💫 About Me:
