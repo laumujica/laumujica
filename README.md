@@ -1,9 +1,9 @@
-![github](https://github.com/laumujica/laumujica.com.ar/blob/master/img/portada-github.jpg)
+![github](https://assets.zyrosite.com/YanJppOEE9C9E7e9/portada-github-YRwuGTTuNywyDE9Z.jpg)
 
 
 # 💫 About Me:
 🙋🏻‍♀️
-I'm Laura, a Digital & Graphic Designer passionate about building meaningful and powerful brand identities.
+I'm Laura, a Graphic & Web Designer passionate about building meaningful and powerful brand identities.
 
 ✨
 With over a decade of experience, I specialize in crafting brands that connect on a deeper level, blending creativity and strategy. My approach is all about designing with purpose—whether it's branding, digital design, or developing strategic direction, I believe in pushing the boundaries to create authentic, lasting connections.
@@ -17,7 +17,7 @@ Let’s break the mold and build something extraordinary together! 🎈✨
 😎
 Be bold, be memorable!
 
-Feel free to connect: hola@laumujica.com.ar.
+Feel free to connect: hello@lauramujica.com
 Have a great day!
 Laura ⚡
 
