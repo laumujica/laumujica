@@ -1,5 +1,4 @@
-![github](https://assets.zyrosite.com/YanJppOEE9C9E7e9/portada-github-YRwuGTTuNywyDE9Z.jpg)
-
+<img width="1584" height="396" alt="LinkedIn_Banner_1584x396-03" src="https://github.com/user-attachments/assets/32bbccfc-0866-4190-86a4-4d4af9cbb9b9" />
 
 # 💫 About Me:
 Hi! I’m Laura
